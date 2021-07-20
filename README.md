@@ -1,4 +1,4 @@
-# Portfolio Merlyn J.Hurtado 
+# Portfolio Merlyn Johanna Hurtado 
 
 https://merlynjocol.github.io/
 
